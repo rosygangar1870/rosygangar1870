@@ -1,2 +1,2 @@
-Hi, I'm Rosy :blush: <br>
+Hi, I'm Rosy.
 I am currently in my pre-final year at Chitkara University. 
